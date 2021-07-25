@@ -8,23 +8,7 @@
 
 http://gph.is/1eayIBL
 
-<!doctype html>
 
-<html lang="en">
-  
-<head>
-  
-  <title>Helloooo</title>
- 
-
-</head>
-
-<body>
-  
-  <!-- your content here... -->
-  <script src="js/scripts.js"></script>
-</body>
-</html>
 
 
 
