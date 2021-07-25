@@ -1,6 +1,6 @@
 ![giphytype](https://user-images.githubusercontent.com/54687648/126887046-70dba670-d85a-4ed5-b449-a91f1fafdcfd.gif)
 
-### Hi 😃
+### Hi I'm Karolyn 😃
 
 "The important thing is not to stop questioning. Curiosity has its own reason for existing".
 
@@ -20,7 +20,7 @@ git water
 git to work
 ```
 
-¯\_(ツ)_/¯ 
+     ¯\_(ツ)_/¯ 
 
 
 
