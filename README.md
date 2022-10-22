@@ -25,3 +25,5 @@ git to work
 
 
 
+![PROFILEpic](https://user-images.githubusercontent.com/54687648/197334796-2491bcd3-0041-470f-85ab-252048f2ed1e.jpg)
+
