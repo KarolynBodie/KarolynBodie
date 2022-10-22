@@ -8,8 +8,9 @@
 
 ### About Me 
 
-- ✨ I’m currently learning learning Git and Web Development.
-- ⚡ Fun fact: I like learning about other cultures and learning new recipes.
+- ✨ I’m currently learning learning Git and Web Development. <*sigh*> One Day at A Time :| </*sigh*>
+- 🗊  Not trying to flex or anything, but I am kind of an expert note taker. :)
+- ⚡ Fun fact(s): I like learning about other cultures and learning new recipes. In love with bread and pasta lol. <3
 
 
 To-Do List:
