@@ -13,7 +13,7 @@
 - ⚡ Fun fact(s): I like learning about other cultures and learning new recipes. In love with bread and pasta lol. <3
 
 
-To-Do List:
+### To-Do List:
 
 ```
 git food
@@ -24,7 +24,8 @@ git to work
      ¯\_(ツ)_/¯ 
 
 
-I have a crush on an Apple Fanboy 😏
+## I have a crush on an Apple Fanboy 😏
+
 <img src="https://user-images.githubusercontent.com/54687648/197334847-cf9bc8d7-6d67-4af6-a6ea-eb5fad6bcb25.jpg" 
      width="200" 
      height="200" />
