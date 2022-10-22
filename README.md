@@ -24,6 +24,6 @@ git to work
      ¯\_(ツ)_/¯ 
 
 
-
-![PROFILEpic](https://user-images.githubusercontent.com/54687648/197334796-2491bcd3-0041-470f-85ab-252048f2ed1e.jpg)
-
+<img src="(https://user-images.githubusercontent.com/54687648/197334847-cf9bc8d7-6d67-4af6-a6ea-eb5fad6bcb25.jpg)" 
+     width="400" 
+     height="400" />
