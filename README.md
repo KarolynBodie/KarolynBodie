@@ -22,7 +22,7 @@ www.youtube.com/embed/hGCSD6AHv5U
      height="200" />
      
 
-### About Me 👩🏾‍🏫
+### About Me 👩🏾‍🏫 (*・‿・)ノ⌒*:･ﾟ✧
 
 - ✨ I’m currently learning learning **Git** and **Web Development**. <*sigh*> One Day at A Time :| </*sigh*>
 - 🗊  Not trying to _flex_ or anything, but I am kind of an expert note taker. :)
@@ -32,9 +32,9 @@ www.youtube.com/embed/hGCSD6AHv5U
 ### To-Do List:
 
 ```
-- git food
-- git water
-- git to work
+1) git food 🍟
+2) git water 🥤
+3) git to work 🐱‍💻
 ```
 
      ¯\_(ツ)_/¯ 
