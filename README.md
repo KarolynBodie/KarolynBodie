@@ -15,7 +15,7 @@
 - ⚡ Fun fact(s): I like learning about other cultures and learning new recipes. In love with bread and pasta lol. <3
 
 <body>
-  <p style="color:#FF0000";>Red paragraph text</p>
+  <p style="color:#FF5733";>Red paragraph text</p>
 </body>
 
 
