@@ -7,14 +7,12 @@
 
 ## Hi, I'm Karolyn 😃 a.k.a E!N$T£¡N 🧪
 
-`#0969DA` **"The important thing is not to stop questioning. Curiosity has its own reason for existing".**
+**"The important thing is not to stop questioning. Curiosity has its own reason for existing".**
 > Einstein
 
 
 ### Theme Song
-
-<iframe width="400" height="300" src="https://www.youtube.com/embed/hGCSD6AHv5U" title="Little Einstein Theme Song Remix" frameborder="0" allow="accelerometer; autoplay; 
-/>
+https://www.youtube.com/embed/hGCSD6AHv5U
      
 
 ### About Me 
