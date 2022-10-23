@@ -32,9 +32,9 @@ www.youtube.com/embed/hGCSD6AHv5U
 ### To-Do List:
 
 ```
-1) git food 🍟
-2) git water 🥤
-3) git to work ༼つಠ益ಠ༽つ ─=≡ΣO))
+- [x] git food 🍟
+- [ ] git water 🥤
+- [ ] git to work ༼つಠ益ಠ༽つ ─=≡ΣO))
 ```
 
      ¯\_(ツ)_/¯ 
@@ -48,6 +48,8 @@ www.youtube.com/embed/hGCSD6AHv5U
      
 ## Hashbrowns 🥔
 #WRECK-IT RALPH 🌐 #SHELLHACKS 🐚 #BEMDC 🌟 #GOPANTHERS 🐾 #NSUSHARK 🦈
+
+## Stalk my Socials 
 
 
 
