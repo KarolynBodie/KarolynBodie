@@ -2,8 +2,8 @@
 
 
 <img src="https://user-images.githubusercontent.com/54687648/126887046-70dba670-d85a-4ed5-b449-a91f1fafdcfd.gif" 
-     width="400" 
-     height="300" />
+     width="200" 
+     height="200" />
 
 ## Hi, I'm Karolyn 😃 a.k.a E!N$T£¡N 🧪
 
