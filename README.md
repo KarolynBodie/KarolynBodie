@@ -7,7 +7,7 @@
 
 ## Hi, I'm Karolyn 😃 a.k.a E!N$T£¡N 🧪
 
-**"The important thing is not to stop questioning. Curiosity has its own reason for existing".**
+`**"The important thing is not to stop questioning. Curiosity has its own reason for existing".**`
 > Einstein
 
 
