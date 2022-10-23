@@ -1,4 +1,8 @@
-![giphytype](https://user-images.githubusercontent.com/54687648/126887046-70dba670-d85a-4ed5-b449-a91f1fafdcfd.gif)
+//![giphytype](https://user-images.githubusercontent.com/54687648/126887046-70dba670-d85a-4ed5-b449-a91f1fafdcfd.gif)
+
+<img src="https://user-images.githubusercontent.com/54687648/126887046-70dba670-d85a-4ed5-b449-a91f1fafdcfd.gif" 
+     width="200" 
+     height="400" />
 
 ### Hi I'm Karolyn 😃
 
