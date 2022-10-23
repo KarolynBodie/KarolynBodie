@@ -32,9 +32,9 @@ www.youtube.com/embed/hGCSD6AHv5U
 ### To-Do List:
 
 ```
-git food
-git water
-git to work
+- git food
+- git water
+- git to work
 ```
 
      ¯\_(ツ)_/¯ 
