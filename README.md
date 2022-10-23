@@ -2,10 +2,15 @@
      width="400" 
      height="300" />
 
-## Hi, I'm Karolyn 😃
+## Hi, I'm Karolyn 😃 a.k.a E!N$T£¡N 🧪
 
 **"The important thing is not to stop questioning. Curiosity has its own reason for existing".**
 > Einstein
+
+
+### Theme Song
+
+<iframe width="400" height="300" src="https://www.youtube.com/embed/hGCSD6AHv5U" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ### About Me 
 
