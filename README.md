@@ -3,13 +3,13 @@
      width="400" 
      height="200" />
 
-## Hi, I'm Karolyn 😃 a.k.a E!N$T£¡N 🧪
+## Hi, I'm Karolyn 😃 a.k.a E!N$T£¡N 👩🏾‍🔬🧪
 
 **"The important thing is not to stop questioning. Curiosity has its own reason for existing".**
 > Einstein
 
 
-### Theme Song
+### Theme Song 👩🏾‍🚀🚀
 https://www.youtube.com/embed/hGCSD6AHv5U
      
 ### Memes
@@ -20,7 +20,7 @@ https://www.youtube.com/embed/hGCSD6AHv5U
 
      
 
-### About Me 
+### About Me 👩🏾‍🏫
 
 - ✨ I’m currently learning learning **Git** and **Web Development**. <*sigh*> One Day at A Time :| </*sigh*>
 - 🗊  Not trying to _flex_ or anything, but I am kind of an expert note taker. :)
