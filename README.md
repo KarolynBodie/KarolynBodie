@@ -17,7 +17,7 @@
      
      
  <video width="320" height="240" controls>
-  <source src="[movie.mp4](https://www.youtube.com/embed/hGCSD6AHv5U)" type="video/mp4">
+  <source src="https://www.youtube.com/embed/hGCSD6AHv5U)">
 </video>
      
 
