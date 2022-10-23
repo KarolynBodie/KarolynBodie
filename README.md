@@ -13,7 +13,7 @@
 https://www.youtube.com/embed/hGCSD6AHv5U
      
 ### Memes
-<img src="https://user-images.githubusercontent.com/54687648/126887046-70dba670-d85a-4ed5-b449-a91f1fafdcfd.gif](https://user-images.githubusercontent.com/54687648/197384963-c576a61e-cf17-4bfb-8ddd-200fdb9d2814.jpg" 
+<img src="https://user-images.githubusercontent.com/54687648/197384963-c576a61e-cf17-4bfb-8ddd-200fdb9d2814.jpg" 
      width="400" 
      height="200" />
      
