@@ -5,7 +5,7 @@
 
 ## Hi, I'm Karolyn 😃 aka E!N$T£¡N 👩🏾‍🔬🧪
 
-**"The important thing is not to stop questioning. Curiosity has its own reason for existing".**
+**"The important thing is, not to stop questioning. Curiosity has its own reason for existing".**
 > Einstein
 
 
@@ -16,8 +16,10 @@ www.youtube.com/embed/hGCSD6AHv5U
 <img src="https://user-images.githubusercontent.com/54687648/197384963-c576a61e-cf17-4bfb-8ddd-200fdb9d2814.jpg" 
      width="400" 
      height="200" />
-     
-
+        
+<img src="https://user-images.githubusercontent.com/54687648/197385851-e67eafa9-81a4-40ba-8477-7bcf9f9cb853.jpg" 
+     width="400" 
+     height="200" />
      
 
 ### About Me 👩🏾‍🏫
@@ -38,7 +40,7 @@ git to work
      ¯\_(ツ)_/¯ 
 
 
-## I have a crush on an Apple Fanboy 😏
+## I have a crush on an Apple Fanboy 😇😏
 
 <img src="https://user-images.githubusercontent.com/54687648/197334847-cf9bc8d7-6d67-4af6-a6ea-eb5fad6bcb25.jpg" 
      width="200" 
