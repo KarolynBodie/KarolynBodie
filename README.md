@@ -34,7 +34,7 @@ www.youtube.com/embed/hGCSD6AHv5U
 ```
 1) git food 🍟
 2) git water 🥤
-3) git to work 🐱‍💻
+3) git to work ༼つಠ益ಠ༽つ ─=≡ΣO))
 ```
 
      ¯\_(ツ)_/¯ 
