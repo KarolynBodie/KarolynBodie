@@ -3,14 +3,14 @@
      width="400" 
      height="200" />
 
-## Hi, I'm Karolyn 😃 a.k.a E!N$T£¡N 👩🏾‍🔬🧪
+## Hi, I'm Karolyn 😃 aka E!N$T£¡N 👩🏾‍🔬🧪
 
 **"The important thing is not to stop questioning. Curiosity has its own reason for existing".**
 > Einstein
 
 
 ### Theme Song 👩🏾‍🚀🚀
-https://www.youtube.com/embed/hGCSD6AHv5U
+https://www.youtube.com/hGCSD6AHv5U
      
 ### Memes
 <img src="https://user-images.githubusercontent.com/54687648/197384963-c576a61e-cf17-4bfb-8ddd-200fdb9d2814.jpg" 
