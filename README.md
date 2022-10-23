@@ -32,9 +32,10 @@ www.youtube.com/embed/hGCSD6AHv5U
 ### To-Do List:
 
 ```
-- [x] git food 🍟
-- [ ] git water 🥤
-- [ ] git to work ༼つಠ益ಠ༽つ ─=≡ΣO))
+ > git food 🍟
+ > git water 🥤
+ > git to work ༼つಠ益ಠ༽つ ─=≡ΣO))
+ 
 ```
 
      ¯\_(ツ)_/¯ 
@@ -50,6 +51,7 @@ www.youtube.com/embed/hGCSD6AHv5U
 #WRECK-IT RALPH 🌐 #SHELLHACKS 🐚 #BEMDC 🌟 #GOPANTHERS 🐾 #NSUSHARK 🦈
 
 ## Stalk my Socials 
-
+Instagram: ...
+Linked-in: ...
 
 
