@@ -51,7 +51,8 @@ www.youtube.com/embed/hGCSD6AHv5U
 #WRECK-IT RALPH 🌐 #SHELLHACKS 🐚 #BEMDC 🌟 #GOPANTHERS 🐾 #NSUSHARK 🦈
 
 ## Stalk my Socials 
-Instagram: ...
-Linked-in: ...
+Instagram: www.instagram.com/krypt0karolyn/
+
+Linked-in: https://www.linkedin.com/in/karolyn-bodie-669291211/
 
 
