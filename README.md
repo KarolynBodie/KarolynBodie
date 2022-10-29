@@ -1,5 +1,5 @@
 
-## Hi, I am BODIE, KAROLYN............
+## HELLO PUTA, MY NAME IS KAROLYN BODIE............
 
 ### About Me (*・‿・)ノ⌒*:･ﾟ✧
 
