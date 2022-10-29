@@ -3,7 +3,7 @@
      width="400" 
      height="200" />
 
-## Hi, I'm Karolyn 😃 aka E!N$T£¡N 👩🏾‍🔬🧪
+## Hi, I am BODIE, KAROLYN............
 
 **"The important thing is, not to stop questioning. Curiosity has its own reason for existing".**
 > Einstein
@@ -27,6 +27,7 @@ www.youtube.com/embed/hGCSD6AHv5U
 - ✨ I’m currently learning learning **Git** and **Web Development**. <*sigh*> One Day at A Time :| </*sigh*>
 - 🗊  Not trying to _flex_ or anything, but I am kind of an expert note taker. :)
 - ⚡ Fun fact(s): I like learning about other cultures and learning new recipes. In love with bread and pasta lol. <3
+- THNKS 2 ALL MY PROFS WHO CARED. ANYWAYSSSS. TAKE CARE.
 
 
 ### To-Do List:
@@ -41,18 +42,16 @@ www.youtube.com/embed/hGCSD6AHv5U
      ¯\_(ツ)_/¯ 
 
 
-## I have a crush on an Apple Fanboy 😇😏
+## I have a crush on an Apple Fanboy 😇😏 BUT I PREFER FRIES OVER GUYS SOOOO SORRY *SMIRK*
 
 <img src="https://user-images.githubusercontent.com/54687648/197334847-cf9bc8d7-6d67-4af6-a6ea-eb5fad6bcb25.jpg" 
      width="200" 
      height="200" />
      
 ## Hashbrowns 🥔
-#WRECK-IT RALPH 🌐 #SHELLHACKS 🐚 #BEMDC 🌟 #GOPANTHERS 🐾 #NSUSHARK 🦈
+#WRECK-IT RALPH #FUCKSHELLHACKS THANK U SHELL HACKS EMOJICODE 🐚 #FUCKMIAMIDADECOLLEGE  #GOTOHELLPANTHERS #FUCKFLORIDAINTERNATIONALUNIVERSITY #FUCKNOVASOUTHEASTERNUNIVERSITY YALL REALLY THINK I WANNA WORK FOR YALL AND BE A STUDENT AT YALL SCHOOL YOU DONT GIVE A DAMN ABOUT BLACK AND HISPANIC STUDENT SUCH BLOOD SUCKERS. KEEP ON SMILING AT MY THANK U FOR LOOKING AT MY ASS. YALL HAVE FUN THERE. REALLY HONORS COLLEGE? AND A WHOLE NEW MEDICAL PROGRAM AND NEW STUDENT CENTER YALL HAVE FUN IN HELL #REALHASTALAMUERTE :) COME HUEVOS AND SUCK A DICK 
 
 ## Stalk my Socials 
-Instagram: www.instagram.com/krypt0karolyn/
-
-Linked-in: https://www.linkedin.com/in/karolyn-bodie-669291211/
+FUCK YOUUUUUUUUUUUUUUUUUUUUU 
 
 
