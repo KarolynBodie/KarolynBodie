@@ -1,55 +1,30 @@
 
-<img src="https://user-images.githubusercontent.com/54687648/126887046-70dba670-d85a-4ed5-b449-a91f1fafdcfd.gif" 
-     width="400" 
-     height="200" />
-
 ## Hi, I am BODIE, KAROLYN............
 
-**"The important thing is, not to stop questioning. Curiosity has its own reason for existing".**
-> Einstein
+### About Me (*・‿・)ノ⌒*:･ﾟ✧
+
+MIND YOUR OWN DAMN BUSINESS YOU DONT KNOW ME AND YOU DONT CARE AT ALLLLL!! KEEP THAT SAME ENERGY!!!!!!
 
 
-### Theme Song 👩🏾‍🚀🚀
-www.youtube.com/embed/hGCSD6AHv5U
-
-### Memes 😂
-<img src="https://user-images.githubusercontent.com/54687648/197384963-c576a61e-cf17-4bfb-8ddd-200fdb9d2814.jpg" 
-     width="400" 
-     height="200" />
-        
-<img src="https://user-images.githubusercontent.com/54687648/197385851-e67eafa9-81a4-40ba-8477-7bcf9f9cb853.jpg" 
-     width="400" 
-     height="200" />
-     
-
-### About Me 👩🏾‍🏫 (*・‿・)ノ⌒*:･ﾟ✧
-
-- ✨ I’m currently learning learning **Git** and **Web Development**. <*sigh*> One Day at A Time :| </*sigh*>
-- 🗊  Not trying to _flex_ or anything, but I am kind of an expert note taker. :)
-- ⚡ Fun fact(s): I like learning about other cultures and learning new recipes. In love with bread and pasta lol. <3
-- THNKS 2 ALL MY PROFS WHO CARED. ANYWAYSSSS. TAKE CARE.
+//- THNKS 2 ALL MY PROFS WHO CARED. I APRECIATE WHAT YOU GUYS TAUGHT ME. ANYWAYSSSS. TAKE CARE. -PROF.KAROLYN :)
 
 
 ### To-Do List:
 
 ```
- > git food 🍟
- > git water 🥤
- > git to work ༼つಠ益ಠ༽つ ─=≡ΣO))
+ > git food 
+ > git water 
+ > FLEX ON THE HATERS ༼つಠ益ಠ༽つ ─=≡ΣO))
  
 ```
 
      ¯\_(ツ)_/¯ 
 
 
-## I have a crush on an Apple Fanboy 😇😏 BUT I PREFER FRIES OVER GUYS SOOOO SORRY *SMIRK*
 
-<img src="https://user-images.githubusercontent.com/54687648/197334847-cf9bc8d7-6d67-4af6-a6ea-eb5fad6bcb25.jpg" 
-     width="200" 
-     height="200" />
      
-## Hashbrowns 🥔
-#WRECK-IT RALPH #FUCKSHELLHACKS THANK U SHELL HACKS EMOJICODE 🐚 #FUCKMIAMIDADECOLLEGE  #GOTOHELLPANTHERS #FUCKFLORIDAINTERNATIONALUNIVERSITY #FUCKNOVASOUTHEASTERNUNIVERSITY YALL REALLY THINK I WANNA WORK FOR YALL AND BE A STUDENT AT YALL SCHOOL YOU DONT GIVE A DAMN ABOUT BLACK AND HISPANIC STUDENT SUCH BLOOD SUCKERS. KEEP ON SMILING AT MY THANK U FOR LOOKING AT MY ASS. YALL HAVE FUN THERE. REALLY HONORS COLLEGE? AND A WHOLE NEW MEDICAL PROGRAM AND NEW STUDENT CENTER YALL HAVE FUN IN HELL #REALHASTALAMUERTE :) COME HUEVOS AND SUCK A DICK 
+## Hashbrowns 
+#WRECK-IT RALPH #FUCKSHELLHACKS THANK U SHELL HACKS EMOJICODE 🐚 #FUCKMIAMIDADECOLLEGE  #GOTOHELLPANTHERS #FUCKFLORIDAINTERNATIONALUNIVERSITY #FUCKNOVASOUTHEASTERNUNIVERSITY YALL REALLY THINK I WANNA WORK FOR YALL AND BE A STUDENT AT YALL SCHOOL YOU DONT GIVE A DAMN ABOUT BLACK AND HISPANIC STUDENTS SUCH BLOOD SUCKERS. KEEP ON SMILING AT ME LIKE WE ARE FRIENDS.  THANK U FOR LOOKING AT MY ASS. YALL HAVE FUN THERE. REALLY HONORS COLLEGE? AND A WHOLE NEW MEDICAL PROGRAM AND NEW STUDENT CENTER???? YALL HAVE FUN IN HELL!!!!!!  #REALHASTALAMUERTE :) COME HUEVOS AND SUCK A DICK 
 
 ## Stalk my Socials 
 FUCK YOUUUUUUUUUUUUUUUUUUUUU 
