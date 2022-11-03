@@ -1,5 +1,5 @@
 
-## HELLO PUTA, MY NAME IS KAROLYN BODIE............
+## SPECIAL AGENT OSO 
 
 ### ABOUT ME (*・‿・)ノ⌒*:･ﾟ✧
 
