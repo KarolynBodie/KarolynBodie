@@ -74,9 +74,9 @@ LinkedIn: https://www.linkedin.com/in/karolyn-bodie-669291211/
 
 Twitter:  https://twitter.com/QwertyKarolyn
 
-Instagram: https://www.instagram.com/modelopotato/
+ 📸 Instagram: https://www.instagram.com/modelopotato/
 
-Spotify: https://open.spotify.com/user/princesskbodie?si=2319e344b3d949bc
+ 🎶 Spotify: https://open.spotify.com/user/princesskbodie?si=2319e344b3d949bc
 
 
 
