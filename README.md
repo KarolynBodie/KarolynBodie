@@ -33,7 +33,7 @@ Phone Number:
 
 ## FOLLOW ME ON SOCIAL MEDIA
 
-LinkedIn:
+LinkedIn: https://www.linkedin.com/in/karolyn-bodie-669291211/
 
 Twitter:
 
