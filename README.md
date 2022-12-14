@@ -1,15 +1,17 @@
 
-## SPECIAL AGENT OSO 
+## Hello There!
 
 ### ABOUT ME (*・‿・)ノ⌒*:･ﾟ✧
 
-TROLL AND ROLL BOYS :)
+My name is Karolyn and you can call me Karolyn :) ! 
 
-/* THNKS 2 ALL MY PROFS WHO CARED. I APRECIATE WHAT YOU GUYS TAUGHT ME. ANYWAYSSSS. TAKE CARE. -PROF.KAROLYN :) 
- AND TO THE GUYS WHO ACTUALLY CARED AND WERENT JEALOUS OF ME AND ACTUALLY HELPED: JAMON, FRANKFURTER, SOMA, JD, AND THANOS THX GUYS:)
-*/
+I am a Freelancing IT Consultant. Feel Free to Contact Me with any Tech Problems that you are having and I will do my best to help you out. I do not know everything but with your help and the power of the Internet, I can find a solution to your problem and help you save a lot of time and frustration. DO NOT hesitate to call me because I am a Freelancer, I am just looking for work so it is easier if work finds me. 
 
-## 404
+My Contact Info: 
+
+Email:
+Phone Number:
+
 
 
 ### TO-DO LIST:
@@ -27,12 +29,15 @@ TROLL AND ROLL BOYS :)
 
      
 ## HASHBROWNS 
-#WRECK-IT RALPH 
-
-## STALK MY SOCIALS 
-FUDGE YOU - CATCH ME IF YOU CAN!
 
 
-## MAN I AM GOOD AT THIS LOL ROTFL 
+## FOLLOW ME ON SOCIAL MEDIA
+
+LinkedIn:
+
+Twitter:
+
+
+
 
 
