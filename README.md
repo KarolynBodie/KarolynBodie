@@ -17,7 +17,7 @@ Plans to: Transfer to FIU to complete BS in IT
 
 
 
-
+## Freelancing IT Consultant
 
 ![adi-goldstein-EUsVwEOsblE-unsplash (3)](https://user-images.githubusercontent.com/54687648/207591203-24824f2c-796f-4b49-a643-8dc7002d0ace.jpg)
 
