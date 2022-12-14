@@ -5,14 +5,16 @@
 
 My name is Karolyn and you can call me Karolyn :) 
 
-I am a 21 years old. 
+I am  21 years old. 
 A Student at Miami Dade College.
 Major: Computer Information Systems (AA)
-Plans to: Transfer to FIU to complete BS in IT
+Plans to: 
+          Transfer to FIU to complete BS in IT
           Transfer to another University for Masters Degree in Information Technology. Concentration(s): Networking, Data Science, and InfoSec.
           Create Own Company.
        
- Current:  Working on Blog / Company - KodingKarolyn
+ Current:  
+          Working on Blog / Company - KodingKarolyn
 
 
 
