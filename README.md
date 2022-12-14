@@ -35,7 +35,7 @@ Phone Number:
 
 LinkedIn: https://www.linkedin.com/in/karolyn-bodie-669291211/
 
-Twitter:
+Twitter:  https://twitter.com/QwertyKarolyn
 
 
 
