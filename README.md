@@ -70,9 +70,9 @@ Phone Number: 786 - 424 - 5105
 
 ## FOLLOW ME ON SOCIAL MEDIA
 
-LinkedIn: https://www.linkedin.com/in/karolyn-bodie-669291211/
+  ⛓️  LinkedIn: https://www.linkedin.com/in/karolyn-bodie-669291211/
 
-Twitter:  https://twitter.com/QwertyKarolyn
+ 🕊️  Twitter:  https://twitter.com/QwertyKarolyn
 
  📸 Instagram: https://www.instagram.com/modelopotato/
 
