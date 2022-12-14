@@ -37,6 +37,7 @@ LinkedIn: https://www.linkedin.com/in/karolyn-bodie-669291211/
 
 Twitter:  https://twitter.com/QwertyKarolyn
 
+Instagram: https://www.instagram.com/modelopotato/
 
 
 
